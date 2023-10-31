@@ -6,4 +6,4 @@
 
 ⚽️ • Jogo futebol
 
-![pato-caminando (1)](https://github.com/phellipetscha/Phellipe.tscha/assets/146093247/4f2dadbd-f45a-4ada-80f9-31012d43fbea)
+![icegif-307](https://github.com/phellipetscha/Phellipe.tscha/assets/146093247/f50d3289-b393-4a1a-9497-bd1a1d8975c6)
